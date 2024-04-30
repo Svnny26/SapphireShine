@@ -1,2 +1,2 @@
-# SapphireShine
-¡Bienvenido a SapphireShine, tu destino para la elegancia y el brillo atemporal!
+#Sophré
+¡Bienvenido a Sophré, tu destino para la elegancia y el brillo atemporal!
